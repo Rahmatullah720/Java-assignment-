@@ -1,2 +1,1 @@
-# Java-assignment-
-I am a Software Engineering student at Kabul University. I am interested in Java programming, web development, and learning new technologies. I am working to improve my programming skills and build useful projects.
+ca 2... https://drive.google.com/file/d/1OBOynpbKcQE_GG9oLS7UdLESy83PN2Mc/view?usp=drive_link
